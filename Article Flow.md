@@ -10,5 +10,12 @@
 # Use Fine tuned OSHO Discourse Model
 
 
+ 
 
-
+# Transformers
+# Datasets
+# Peft
+# Trl
+# Bitsandbytes
+# Tensorflow
+# Torch
