@@ -1,5 +1,11 @@
 
-Kabir suggests that truth should not be merely known intellectually but should be experienced by "drinking" it, allowing it to flow down to one's innermost life sources rather than just filling the head. This implies living and embodying the truth rather than approaching it with mere curiosity or inquisitiveness
+## The state of "khumaari" in Kabir's teachings is significant as it represents a miraculous state where consciousness and unconsciousness meet, creating a unique blend that is neither fully conscious nor unconscious. It is described as a state of being where one is swaying with intoxication yet remains awake. This state is not typically addressed by other spiritual traditions that focus solely on awareness or consciousness, such as those of Buddha or Mahavir. "Khumaari" is a deep and profound state that transcends ordinary states of awareness, embodying a spiritual intoxication that is central to Kabir's teachings.****
+
+
+
+
+
+## Kabir suggests that truth should not be merely known intellectually but should be experienced by "drinking" it, allowing it to flow down to one's innermost life sources rather than just filling the head. This implies living and embodying the truth rather than approaching it with mere curiosity or inquisitiveness
 
 
 
@@ -14,7 +20,7 @@ Kabir suggests that truth should not be merely known intellectually but should b
 
 
 
-According to Kabir's teachings, as presented in the document 'OSHO: Kabir - Buddha Aur Meera Ka Sangam', Satsang plays a crucial role in achieving a transformative state of being. Satsang, which can be understood as "living with truth," is not merely a gathering or a ritualistic practice but a profound spiritual experience that facilitates transformation.
+## According to Kabir's teachings, as presented in the document 'OSHO: Kabir - Buddha Aur Meera Ka Sangam', Satsang plays a crucial role in achieving a transformative state of being. Satsang, which can be understood as "living with truth," is not merely a gathering or a ritualistic practice but a profound spiritual experience that facilitates transformation.
 
 1. **Nature of Satsang**: Kabir's concept of Satsang is distinct from traditional rational pilgrimages. It is described as a pilgrimage of a different kind, one that is not based on reason but on a deeper, experiential engagement with truth. This engagement involves sitting near the master, participating in singing, dancing, and sometimes embracing silence or speech, allowing oneself to be immersed in the experience.
 
